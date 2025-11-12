@@ -1,0 +1,1 @@
+Avaliação Diagnóstica de BSMs - A avaliação diagnóstica de BSMs é uma autoavaliação inicial de soft skills realizada no início do programa para medir o nível inicial dos participantes.
