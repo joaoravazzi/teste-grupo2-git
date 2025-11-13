@@ -1,0 +1,1 @@
+Avaliação Diagnóstica de BSMs: Avaliação inicial usada como métrica para o nível dos participantes da turma em soft skills
