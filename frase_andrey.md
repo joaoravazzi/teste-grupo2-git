@@ -1,1 +1,1 @@
-Avaliação Formativa de BSM As avaliações formativas de BSMs.
+Avaliação Formativa de BSM As avaliações formativas de BSMs. - As avaliações formativas de BSMs servem para medir o quanto as pessoas evoluíram em suas habilidades socioemocionais desde o início até a metade do programa. Elas incluem três atividades principais: autorreflexão intermediária, avaliação por pares e dramatizações realizadas ao longo do período de aprendizagem.
